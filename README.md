@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @bryanmalak
-- 🌱 I am currently a senior at MI State University
-- 🧊 Reach me @malakbry@msu.edu
+- 🌱 I'm a MI State University graduate
+- 🧊 Reach me at bvmalak@gmail.com
